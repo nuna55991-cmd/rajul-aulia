@@ -1,0 +1,2 @@
+# rajul-aulia
+perdagangan
